@@ -42,6 +42,7 @@
 
 ## Contact
 
+* Discord: [DeTeam](https://discord.gg/BZyDYZj)
 * Telegram: [@DeBos99](https://t.me/DeBos99)
 * Reddit: [DeBos99](https://www.reddit.com/user/DeBos99)
 * Twitter: [@DeBos99](https://www.twitter.com/DeBos99)
